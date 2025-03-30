@@ -32,4 +32,4 @@ Part 7:
 https://youtube.com/playlist?list=PLlvfBKqGhLObejB3JQ2PpxCjqcDHzvDHr&si=QjeOcpLaSQm0F9Gc
 https://youtube.com/playlist?list=PL7hkcn6EZM1rveMUcxWhP8ml7Z53slcMb&si=o9uLTl71bT8z0oYy 
 https://youtu.be/jprfRxa0FEM?si=xftE87cb-I1P2yDy
-https://youtu.be/eli0B7H1jsw?si=TzkF93Lg51bTvVoU
+https://youtu.be/eli0B7H1jsw?si=TzkF93Lg51bTvVoU . 
